@@ -1,1 +1,1 @@
-[{"l":"","n":"کانال رسمی پرینوم سافت🌙","id":"https://rubika.ir/parinom_saft"}]
+[{"l":"https://s16.picofile.com/file/8423648650/Polish_%DB%B2%DB%B0%DB%B2%DB%B1%DB%B0%DB%B2%DB%B0%DB%B2_%DB%B1%DB%B2%DB%B0%DB%B0%DB%B2%DB%B3%DB%B9%DB%B6%DB%B2.png","n":"کانال رسمی پرینوم سافت🌙","id":"https://rubika.ir/parinom_saft"}]
